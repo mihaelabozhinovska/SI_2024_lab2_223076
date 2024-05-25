@@ -1,1 +1,1 @@
-# SI_2024_lab2_223076
+Mihaela Bozhinovska 223076
